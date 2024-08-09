@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **jaimil.lxv@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11PYw6d3nyrKQSJfxSyDkafwJe5xC54UF/view?usp=sharing](https://drive.google.com/file/d/11PYw6d3nyrKQSJfxSyDkafwJe5xC54UF/view?usp=sharing)
+- 📄 Know about my experiences [here](https://drive.google.com/file/d/11PYw6d3nyrKQSJfxSyDkafwJe5xC54UF/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
