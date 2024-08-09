@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **jaimil.lxv@gmail.com**
 
-- 📄 Know about my experiences [here](https://drive.google.com/file/d/11PYw6d3nyrKQSJfxSyDkafwJe5xC54UF/view?usp=sharing)
+- 📄 Know about my experiences [here](https://drive.google.com/file/d/1lPtOMxk0oJlXATt57dx0klyZNmOtVebP/view?usp=sharing)
 
 
 ## 🌐 Socials:
